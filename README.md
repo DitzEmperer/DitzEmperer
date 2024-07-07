@@ -4,6 +4,8 @@
 
 *.basic dni crit
 
++.ask for my kins! they're too many,,
+
 ```[b4 you int!]```
 
 ! i get easily distracted,,
