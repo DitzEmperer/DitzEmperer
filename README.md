@@ -12,4 +12,4 @@
 
 ! professional hyperfixer and yapper
 
-```! mood swinging and zoning out are kinda often```
+! mood swinging and zoning out are kinda often
