@@ -4,7 +4,7 @@
 
 [b4 you int!]
 
->i get easily distracted,,
->barely social unless i feel confident enough
->professional hyperfixer and yapper
->mood swinging and zoning out are kinda often
+! i get easily distracted,,
+! barely social unless i feel confident enough
+! professional hyperfixer and yapper
+! mood swinging and zoning out are kinda often
