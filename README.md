@@ -1,6 +1,6 @@
-@.i love my bf!! (^^)
-#.nb, biromantic, ace
-*.basic dni crit
+(@.i love my bf!! (^^))
+(#.nb, biromantic, ace)
+(*.basic dni crit)
 
 [b4 you int!]
 
