@@ -8,10 +8,10 @@
 
 ```[b4 you int!]```
 
-! i get easily distracted,,
+! i get easily distracted and forget stuff a lot,,
 
-! barely social unless i feel confident enough
+! mostly non-verbal unless i feel comfortable talking
 
 ! professional hyperfixer and yapper
 
-! mood swinging and zoning out are kinda often
+! zoning out is kinda often
