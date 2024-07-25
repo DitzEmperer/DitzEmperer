@@ -4,9 +4,7 @@
 
 *.basic dni crit
 
-+.ask for my kins! they're too many,,
-
-```[b4 you int!]```
+`[b4 you int!]`
 
 ! i get easily distracted and forget stuff a lot,,
 
@@ -15,3 +13,9 @@
 ! professional hyperfixer and yapper
 
 ! zoning out is kinda often
+
+`[kins if you care]`
+
+*jjba*, **joelg**, ~~ptp~~, crk, `LOT/endzone`
+
+*diego, ghiaccio, mikitaka, josuke, polnareff, f.f., prosciutto, secco*, **ula, shepherdess,** ~~kedamono, popee~~ candy diver, rye, `The climber, Mr durepei, Chimbley, O.M.G.`
