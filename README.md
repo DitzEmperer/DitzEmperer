@@ -16,4 +16,4 @@
 
 `[kins if you care]`
 
-diego, ghiaccio, mikitaka, josuke, polnareff, f.f., prosciutto, secco, ula, shepherdess, kedamono, popee, candy diver, rye, The climber, Mr durepei, Chimbley, O.M.G.
+diego, ghiaccio, mikitaka, josuke, polnareff, f.f., prosciutto, secco, ula, shepherdess, kedamono, candy diver, rye, The climber, Mr durepei, Chimbley, O.M.G.
