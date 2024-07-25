@@ -16,6 +16,4 @@
 
 `[kins if you care]`
 
-*jjba*, **joelg**, ~~ptp~~, crk, `LOT/endzone`
-
-*diego, ghiaccio, mikitaka, josuke, polnareff, f.f., prosciutto, secco*, **ula, shepherdess,** ~~kedamono, popee~~ candy diver, rye, `The climber, Mr durepei, Chimbley, O.M.G.`
+diego, ghiaccio, mikitaka, josuke, polnareff, f.f., prosciutto, secco, ula, shepherdess, kedamono, popee, candy diver, rye, The climber, Mr durepei, Chimbley, O.M.G.
