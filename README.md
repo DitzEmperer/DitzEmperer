@@ -16,4 +16,4 @@
 
 `[kins if you care]`
 
-diego, ghiaccio, mikitaka, josuke, polnareff, f.f., prosciutto, secco, shepherdess (ena), kedamono, candy diver, climber (endzone), gabriel barsch (madcom)
+diego, ghiaccio, mikitaka, josuke, polnareff, f.f., prosciutto, secco, kedamono, candy diver, climber (endzone), gabriel barsch (madcom)
