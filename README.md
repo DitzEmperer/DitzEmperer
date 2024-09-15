@@ -1,6 +1,6 @@
 @.i love my bf!! (^^)
 
-#.nb, biromantic, ace
+#.tomboy, bi,
 
 *.basic dni crit
 
