@@ -4,6 +4,8 @@
 
 *.basic dni crit
 
+%.usually i sit near the pine trees on safe eng or the jojo area on spanish 18+!!
+
 `[b4 you int!]`
 
 ! i get easily distracted and forget stuff a lot,,
