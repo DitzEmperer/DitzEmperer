@@ -1,4 +1,4 @@
-@.i love my bf!! (^^)
+@.i love my gf!! (^^)
 
 #.genderfluid, bi,
 
