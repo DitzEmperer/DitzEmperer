@@ -1,6 +1,6 @@
 @.i love my bf!! (^^)
 
-#.tomboy, bi,
+#.genderfluid, bi,
 
 *.basic dni crit
 
