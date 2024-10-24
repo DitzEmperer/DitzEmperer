@@ -16,6 +16,6 @@
 
 ! zoning out is kinda often
 
-`[kins if you care]`
+`[If one of my ponies has 'c+h' then it's a kin, the ones bellow are yet to be made]`
 
-diego, ghiaccio, mikitaka, josuke, polnareff, f.f., prosciutto, secco, kedamono, candy diver, climber (endzone), gabriel barsch (madcom)
+polnareff, candy diver, climber (endzone), gabriel barsch (madcom)
