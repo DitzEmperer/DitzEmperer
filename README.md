@@ -18,4 +18,4 @@
 
 `[If one of my ponies has 'c+h' then it's a kin, the ones bellow are yet to be made]`
 
-polnareff, candy diver, climber (endzone), gabriel barsch (madcom)
+polnareff, candy diver, climber (endzone), gabriel barsch (madcom), josuke
