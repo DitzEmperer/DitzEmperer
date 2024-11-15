@@ -2,7 +2,7 @@
 
 #.genderfluid, bi,
 
-&.nyctophile, space is my comf zone! (^^)
+&.space is my comf zone! (^^)
 
 *.basic dni crit
 
