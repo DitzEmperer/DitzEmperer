@@ -2,6 +2,8 @@
 
 #.genderfluid, bi,
 
+&.nyctophile, space is my comf zone! (^^)
+
 *.basic dni crit
 
 %.usually i sit near the pine trees on safe eng or the jojo area on spanish 18+!!
