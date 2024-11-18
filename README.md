@@ -18,6 +18,4 @@
 
 ! zoning out is kinda often
 
-`[If one of my ponies has 'c+h' then it's a kin, the ones bellow are yet to be made]`
-
-polnareff, candy diver, gabriel barsch (madcom)
+`[Kins are irls on strawpage, c+h applies to all ponies now ^^]`
