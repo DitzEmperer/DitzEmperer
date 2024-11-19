@@ -1,6 +1,6 @@
 @.i love my gf!! (^^)
 
-#.genderfluid, bi,
+#.transmasc, bi,
 
 &.space is my comf zone! (^^)
 
