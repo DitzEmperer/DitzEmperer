@@ -18,4 +18,4 @@
 
 ! zoning out is kinda often
 
-`[Kins are irls on strawpage, c+h applies to all ponies now ^^]`
+`[Kins are irls on "ditz" strawpage, c+h applies to all ponies now ^^]`
